@@ -1,0 +1,3 @@
+- 👋 Hola me llamo Judith!
+- 👀 Estudio una FP de grado superior 
+- 📫 judith12w2@gmail.com
