@@ -1,3 +1,5 @@
 - 👋 Hola me llamo Judith!
-- 👀 Estudio una FP de grado superior 
-- 📫 judith12w2@gmail.com
+- 👀 Estudio un FP de grado superior de DAM
+- 📓 Aprendiendo Java y Bases de datos
+- 📫 Correo: judith12w2@gmail.com
+- 💿 Discord: Judith12w2
